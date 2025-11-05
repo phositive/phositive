@@ -1,2 +1,2 @@
-# me
-idk just me
+# hi im ummm a human
+idk i'm really stupid
