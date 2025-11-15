@@ -1,2 +1,2 @@
 # hi im ummm a human
-idk i'm really stupid and don't think anyone will read this
+idk what to write hera, it's not like anyone will actually ever read this
